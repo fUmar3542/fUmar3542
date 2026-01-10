@@ -1,4 +1,3 @@
-![Profile Screenshot](https://raw.githubusercontent.com/fUmar3542/github-profile-screenshots/main/screenshots/2026-01-10.png)
 
 ## About Me
 
