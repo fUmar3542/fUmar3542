@@ -1,1 +1,1 @@
-![Profile Screenshot](./screenshots/2026-02-22.png)
+![Profile Screenshot](./screenshots/2026-03-01.png)
